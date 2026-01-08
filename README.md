@@ -2,7 +2,7 @@
 
 ㅤ![Post by @thewisewill80sbyers · 8 images](https://github.com/user-attachments/assets/a2832f0b-d499-4e30-8627-36b336390e10)
 
-
+ㅤㅤ<img width="578" height="175" alt="Screenshot 2026-01-07 222552(1)" src="https://github.com/user-attachments/assets/b6524425-85ab-4577-9a0b-db17f5806f50" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ│ ꕀ Safe Server ⟡ 18+ Server │
 
@@ -16,6 +16,5 @@
 ㅤ𓏵 stranger things ,, epic the musical ,, hamilton ,, baldur gate 3 ,, dispatch  𓏵
 
 <img width="578" height="175" alt="Screenshot 2026-01-07 222552(1)" src="https://github.com/user-attachments/assets/5cab39ac-bd3f-450c-ab8c-3b70aa505833" />
-
 
 
