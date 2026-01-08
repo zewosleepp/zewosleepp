@@ -1,9 +1,5 @@
 ## ── .✦ 𝚃𝚑𝚒𝚜 𝚙𝚛𝚘𝚏𝚒𝚕𝚎 𝚒𝚜 𝚖𝚊𝚒𝚗𝚕𝚢 𝚏𝚘𝚛 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗! >ᴗ<
 
-<img width="1245" height="168" alt="Screenshot 2026-01-08 021933" src="https://github.com/user-attachments/assets/2e48eb11-f06a-4156-8706-753c166f6c19" />
-
-
-
 
 
 ㅤ ![Post by @thewisewill80sbyers · 8 images](https://github.com/user-attachments/assets/359f02f4-d7f2-48aa-afa8-1ce78837e47f)
