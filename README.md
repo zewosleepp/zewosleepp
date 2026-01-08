@@ -2,7 +2,8 @@
 
 ㅤ ![Post by @thewisewill80sbyers · 8 images](https://github.com/user-attachments/assets/359f02f4-d7f2-48aa-afa8-1ce78837e47f)
 
- ㅤ ![Uploading tumblr_0242b43560155542c7d4da5d08dd8d7f_e4768080_20481-ezgif.com-crop.gif…]()
+ ㅤ![tumblr_0242b43560155542c7d4da5d08dd8d7f_e4768080_20481-ezgif com-crop](https://github.com/user-attachments/assets/1806faf4-5ff8-4ce2-af03-cd84549bd26e)
+
 
  
 
