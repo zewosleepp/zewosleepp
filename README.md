@@ -1,4 +1,4 @@
-## ── .✦ This profile is mainly for ponytown! >ᴗ<
+## ── .✦ 𝚃𝚑𝚒𝚜 𝚙𝚛𝚘𝚏𝚒𝚕𝚎 𝚒𝚜 𝚖𝚊𝚒𝚗𝚕𝚢 𝚏𝚘𝚛 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗! >ᴗ<
 
 ㅤㅤ![download](https://github.com/user-attachments/assets/103ed8bb-8d95-4f7b-9c8f-e129c6f06393)
 
