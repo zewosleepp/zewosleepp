@@ -8,6 +8,5 @@
 
 ![tumblr_6b16df66db5fce258dfbf980b2f46aae_4b8c7240_1280 (1)](https://github.com/user-attachments/assets/1872ce81-7fff-449d-b98d-22205a38578d)
 
-
-## fandoms!
+fandoms!
 𓏵 stranger things ,, epic the musical ,, hamilton ,, baldur gate 3 ,, dispatch  𓏵
