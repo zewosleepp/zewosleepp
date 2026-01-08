@@ -1,6 +1,7 @@
 ## ── .✦ 𝚃𝚑𝚒𝚜 𝚙𝚛𝚘𝚏𝚒𝚕𝚎 𝚒𝚜 𝚖𝚊𝚒𝚗𝚕𝚢 𝚏𝚘𝚛 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗! >ᴗ<
 
-ㅤㅤ![download](https://github.com/user-attachments/assets/103ed8bb-8d95-4f7b-9c8f-e129c6f06393)
+ㅤㅤ![ִ࣪𖤐](https://github.com/user-attachments/assets/41f74b87-0ab5-47c5-bbb8-023fe137d6a7)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ│ ꕀ Safe Server ⟡ 18+ Server │
 
