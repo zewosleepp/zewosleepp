@@ -1,8 +1,7 @@
 ## ── .✦ 𝚃𝚑𝚒𝚜 𝚙𝚛𝚘𝚏𝚒𝚕𝚎 𝚒𝚜 𝚖𝚊𝚒𝚗𝚕𝚢 𝚏𝚘𝚛 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗! >ᴗ<
 
-ㅤ![Post by @thewisewill80sbyers · 8 images](https://github.com/user-attachments/assets/a2832f0b-d499-4e30-8627-36b336390e10)
+ㅤ ◟ ྀི ◟ ͜ ⠀⠀ ⠀ ⠀ e ⠀ ⠀ ⠀𓈒 𓈒 　 ⠀ ̮͡ ུ.
 
-ㅤㅤ![tumblr_032ed2d7a56e0eb3e9c9a7cfbeda060e_277b3c7f_2048](https://github.com/user-attachments/assets/65b548e1-bdd5-4ec6-9bfd-23d9a3b61ebc)
 
 
 
