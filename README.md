@@ -1,6 +1,7 @@
 ## ── .✦ 𝚃𝚑𝚒𝚜 𝚙𝚛𝚘𝚏𝚒𝚕𝚎 𝚒𝚜 𝚖𝚊𝚒𝚗𝚕𝚢 𝚏𝚘𝚛 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗! >ᴗ<
 
-<img width="858" height="77" alt="tumblr_ba263006225d20f242e8f53d5b081f8e_fbff5960_1280(1)" src="https://github.com/user-attachments/assets/f71b174a-c879-42d4-8ef0-2e3cac54efba" />
+<img width="541" height="77" alt="tumblr_ba263006225d20f242e8f53d5b081f8e_fbff5960_1280(2)" src="https://github.com/user-attachments/assets/a1c0a4a5-e0a9-4112-84da-176f094619e9" />
+
 
 
 
