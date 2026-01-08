@@ -12,3 +12,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ🇫​​🇦​​🇳​​🇩​​🇴​​🇲​​🇸.ᐟ.ᐟ
 
 𓏵 stranger things ,, epic the musical ,, hamilton ,, baldur gate 3 ,, dispatch  𓏵
+
+<img width="1080" height="1071" alt="tumblr_2f48ddeab09398437c4bc1b70e779b4e_2a5b326b_1280" src="https://github.com/user-attachments/assets/524c8118-2880-419a-b16e-349e5f5cab3d" />
