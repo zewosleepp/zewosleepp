@@ -6,7 +6,8 @@
 
 𓂃 Normally I am near the Genshin, HSR, ST, CRK, area. Bakery or near Docks. ︵
 
-![tumblr_6b16df66db5fce258dfbf980b2f46aae_4b8c7240_1280 (1)](https://github.com/user-attachments/assets/1872ce81-7fff-449d-b98d-22205a38578d)
+![tumblr_4f312e443add2568ad8883081390777c_4b9442f6_640](https://github.com/user-attachments/assets/34c8cde3-84f4-471b-a882-d1bfe0572dc3)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfandoms!
 
