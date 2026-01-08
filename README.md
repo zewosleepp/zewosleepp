@@ -2,7 +2,8 @@
 
 ㅤ![Post by @thewisewill80sbyers · 8 images](https://github.com/user-attachments/assets/a2832f0b-d499-4e30-8627-36b336390e10)
 
-ㅤㅤ![download (15)](https://github.com/user-attachments/assets/89f5b327-deae-48f3-9042-62597a13509f)
+ㅤㅤ<img width="675" height="88" alt="Screenshot 2026-01-07 223738" src="https://github.com/user-attachments/assets/6347513a-aed7-424c-8710-d604752f0cf2" />
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ│ ꕀ Safe Server ⟡ 18+ Server │
