@@ -9,6 +9,6 @@
 ![tumblr_4f312e443add2568ad8883081390777c_4b9442f6_640](https://github.com/user-attachments/assets/34c8cde3-84f4-471b-a882-d1bfe0572dc3)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfandoms!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ🇫​​🇦​​🇳​​🇩​​🇴​​🇲​​🇸.ᐟ.ᐟ
 
 𓏵 stranger things ,, epic the musical ,, hamilton ,, baldur gate 3 ,, dispatch  𓏵
