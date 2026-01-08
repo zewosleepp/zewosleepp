@@ -15,6 +15,7 @@
 
 ㅤ𓏵 stranger things ,, epic the musical ,, hamilton ,, baldur gate 3 ,, dispatch  𓏵
 
-<img width="578" height="175" alt="Screenshot 2026-01-07 222552" src="https://github.com/user-attachments/assets/d40498e7-0aee-4cd0-af51-2be2603d999b" />
+<img width="578" height="175" alt="Screenshot 2026-01-07 222552(1)" src="https://github.com/user-attachments/assets/5cab39ac-bd3f-450c-ab8c-3b70aa505833" />
+
 
 
