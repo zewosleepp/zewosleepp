@@ -2,7 +2,8 @@
 
 ㅤ![Post by @thewisewill80sbyers · 8 images](https://github.com/user-attachments/assets/a2832f0b-d499-4e30-8627-36b336390e10)
 
-ㅤㅤ<img width="675" height="88" alt="Screenshot 2026-01-07 223738" src="https://github.com/user-attachments/assets/6347513a-aed7-424c-8710-d604752f0cf2" />
+ㅤㅤ![tumblr_032ed2d7a56e0eb3e9c9a7cfbeda060e_277b3c7f_2048](https://github.com/user-attachments/assets/65b548e1-bdd5-4ec6-9bfd-23d9a3b61ebc)
+
 
 
 
